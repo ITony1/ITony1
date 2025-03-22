@@ -1,1 +1,2 @@
-![2966678129_preview_spin cat spin-min](https://github.com/user-attachments/assets/c4aa8292-504a-4cc1-a9b4-5da71638eb2f)
+
+![1553356104_ello-optimized-82868409](https://github.com/user-attachments/assets/9379f877-b065-430c-83ad-87ae0776175c)
